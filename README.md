@@ -1,1 +1,1 @@
-helal olsun değerli bağlantım Berkat
+helal olsun değerli bağlantım Berkay
