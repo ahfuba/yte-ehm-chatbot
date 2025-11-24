@@ -1,1 +1,2 @@
-
+baba pro 
+   - Linkedin kulllaınıcısı
